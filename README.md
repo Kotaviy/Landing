@@ -6,3 +6,5 @@
 - Я люблю котиков
 - Я барабанщица
 - Я работаю рентгенлаборантом
+
+![ytEoNmVM6mQ](https://user-images.githubusercontent.com/86298028/230770933-8fae0523-9052-4b98-aacb-a1a92e190c8b.jpg)
